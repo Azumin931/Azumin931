@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Azumin931
-- 👀 I’m  website development ...
+- 👀 I’m into website development ...
 - 🌱 I’m currently working on... website development
 - 💞️ I’m looking to collaborate on ... website development, programming, coding
 - 📫 How to reach me ...08143893534
